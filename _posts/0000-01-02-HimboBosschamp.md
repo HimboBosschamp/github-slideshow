@@ -1,6 +1,6 @@
 ---
 layout: slide
-title: "Welcome to our second slide!"
+title: "Cum"
 ---
 *Bruh* **wocky slush!**
-Use the left arrow to go back!
+Use the left arrow to *cum instantly!*
